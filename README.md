@@ -1,4 +1,4 @@
-# Hey Everyone!
+# Hey!
 
 I'm **FanciestBoi**
 
